@@ -1,6 +1,6 @@
 <div align="center">
     
-<h1>Welcome back to Lionbets Community!</h1>
+<h1>Welcome back to 2xlucky Community!</h1>
 
 <p> Here, right now on <b> your </b> screen, you are in the presence of the most inclusive <i> Crypto Sportsbook </i> community on the planet! </p>
 
